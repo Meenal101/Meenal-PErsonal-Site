@@ -1,1 +1,1 @@
-# Meenal-PErsonal-Site
+# Meenal-Personal-Site
